@@ -2,4 +2,4 @@
 - 👀 I’m interested in Blockchain and AI Technology
 - 🌱 I’m currently learning Cairo
 - 💞️ I’m looking to collaborate on Blockchain project
-- 📫 How to reach me : Discord - odekirkmura
+- 📫 How to reach me : Discord - @odekirkmura
